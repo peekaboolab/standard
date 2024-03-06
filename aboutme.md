@@ -9,7 +9,7 @@ My name is Felix Rios. I have the following qualities:
 - I rock a great mustache
 - I'm extremely loyal to my family
 
-What else do you need?
+Similar qualities apply to Mohamad
 
 ### My story
 
